@@ -1,16 +1,16 @@
-## Hi there 👋
+## Olá galera do GitHub!
 
-<!--
-**torajo-programador-de-verade/torajo-programador-de-verade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**✨Bem-vindos ao meu perfil!✨** 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 📚 Sou uma estudante de ensino médio.
+- 🍏 Gosto de Mundo Torajo, e muitos outro canais de animações.
+- 📝 Amo desenhar histórias, personagens e fanarts.
+- 🎮 Gosto muito de jogar Minecraft e Roblox.
+- 🦦 Amo lontras, cachorro salsicha mofado e gatinhos
+- 🍰 Minha comida favorita é strogonoff, donuts e bolo de nozes.
+
+***- ⚡Pronomes: ELA/DELA***
+--> Sempre disposta a aprender novas atividades e projetos.
+
+![]https://media1.tenor.com/m/MgGjT944AUYAAAAC/mundo-torajo-torajo.gif
