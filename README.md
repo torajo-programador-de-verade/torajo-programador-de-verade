@@ -13,5 +13,5 @@
 ***- ⚡Pronomes: ELA/DELA***
 
 *-Sempre disposta a aprender novas atividades e projetos.*
-
+- Entre em contato comigo pelo meu e-mail : yasmin.livia.santos@escola.pr.gov.br
 ![](https://media1.tenor.com/m/MgGjT944AUYAAAAC/mundo-torajo-torajo.gif)
